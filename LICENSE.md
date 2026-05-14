@@ -1,4 +1,4 @@
-#  
+#  premium Scripts for enter brainrot heads is the best enter brainrot heads Script, featuring auto-sell and auto-upgrade. Safe and powerful for all
 
 
 
